@@ -1,5 +1,5 @@
 # 💫 About Me:
-my name is irsyad <br>im a student From Yogyakarta, Indonesia
+my name is irsyad <br>I'm a student From Yogyakarta, Indonesia
 
 
 ## 🌐 Socials:
