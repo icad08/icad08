@@ -1,5 +1,5 @@
 # 💫 About Me:
-my name is irsyad <br>I'm a Student Of Muhammadiyah University of Yogyakarta, Indonesia
+My name is Irsyad Rahmad <br>I'm a Student Of Muhammadiyah University of Yogyakarta, Indonesia
 
 
 ## 🌐 Socials:
